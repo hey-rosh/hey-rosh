@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @hey-rosh
-- 📫 How to reach me ... roshanmshafeek@gmail.com
+reach me at roshanmshafeek@gmail.com
